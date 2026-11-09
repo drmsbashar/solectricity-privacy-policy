@@ -1,0 +1,1 @@
+# solectricity-privacy-policy
